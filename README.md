@@ -1,1 +1,1 @@
-Initial stuff ... adding more info from iPad
+Initial stuff
